@@ -1,0 +1,2 @@
+# Syarief
+Manunggaling kawula gusti
